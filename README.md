@@ -27,6 +27,6 @@ Currently learning, self-taught:
 
 #### Fun Facts
 
-   - ⚡ I am a father of 5 cats :3
+   - ⚡ I love minesweeper :3
 
 Thank you and don't hesitate to reach out. Let's connect and create something amazing together!!! 🌟
