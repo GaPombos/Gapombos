@@ -1,4 +1,4 @@
-Hi there! Welcome to my GitHub Profile!👋
+#### Hi there! Welcome to my GitHub Profile!👋
 
 I'm Gonçalo Silva, a Computer Science and Engineering Student with a keen interest in Web Development and Graphic Design. 🚀
 About Me
