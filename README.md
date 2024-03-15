@@ -20,4 +20,4 @@ Currently learning, self-taught: HTML CSS JavaScript
 
    - ⚡ I am a father of 5 cats :3
 
-#### Thank you and don't hesitate to reach out. Let's connect and create something amazing together!!! 🌟
+Thank you and don't hesitate to reach out. Let's connect and create something amazing together!!! 🌟
